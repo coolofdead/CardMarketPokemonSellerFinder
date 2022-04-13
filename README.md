@@ -1,0 +1,1 @@
+# Etsy-auto-shop
